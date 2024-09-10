@@ -1,1 +1,1 @@
-How's the life of yours going?
+How's the life that you have?
