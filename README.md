@@ -1,1 +1,1 @@
-How's the life that you have?
+How's the idiosyncratic life that you have?
